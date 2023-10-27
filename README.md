@@ -9,3 +9,4 @@ Assignment links 1)Blog or Website URL- https://harrytraveling.blogspot.com/2023
 3)social media advertisement posters-attached here as jpg format
 4)Email Newsletter Design- https://harrytraveling.blogspot.com/2023/09/email-newsletter-travel.html
 demo ideo link- https://youtube.com/shorts/JmQwax8RluY?si=Sc6mj197QQR6WjXv it is also attached here in mp4 format
+Project blog using wordpress link- https://harrytravel001.wordpress.com/2023/10/21/a-journey-through-life/
